@@ -1,0 +1,2 @@
+# WHAT-HAPPENS-WHEN-YOUR-FURNACE-IS-RED-TAGGED-IN-ONTARIO-2023-
+As of 2023, the province of Ontario has implemented strict regulations and inspection requirements for furnaces. These requirements are in place to ensure the safety and well-being of homeowners and to prevent any potential hazards related to heating systems. Homeowners are required to adhere to these regulations https://www.makkihvac.ca/
